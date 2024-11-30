@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @yukamiku
+- 👀 My telegram is @yukamiku
+- 😄 Pronouns: He
